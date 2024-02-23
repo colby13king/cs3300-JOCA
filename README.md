@@ -14,3 +14,5 @@ https://docs.google.com/document/d/1pclqE2VPKfSZ1YppMnIsu4pdswtz0erxWZxKIoBLvww/
 
 Scrum Agenda for Fri Feb 23:
 https://docs.google.com/document/d/1jTUs-s0YkeTHCFG-lJ_em_sfe4mryk05W6ppMj4SUIY/edit?usp=sharing
+
+Reflections Document (in microsoft for easier editing): https://uccsoffice365-my.sharepoint.com/:w:/g/personal/obach2_uccs_edu/EZEESES52GdHmXujqNqBemoBQU2hy_jxaEA08erxXCxpUQ?e=YW0g5u 
