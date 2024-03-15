@@ -12,7 +12,4 @@ https://docs.google.com/document/d/1tml1VcaKxlS3OJqJFWfu1dA4E8ASxhSZaF4HSS0c2Ek/
 
 [TEAM SCRUM AND GE SPRINT DOCUMENT.docx](https://github.com/colby13king/cs3300-JOCA/files/14195935/TEAM.SCRUM.AND.GE.SPRINT.DOCUMENT.docx)
 
-Scrum Agenda for Fri Feb 23:
-https://docs.google.com/document/d/1jTUs-s0YkeTHCFG-lJ_em_sfe4mryk05W6ppMj4SUIY/edit?usp=sharing
-
 Reflections Document (in microsoft for easier editing): https://uccsoffice365-my.sharepoint.com/:w:/g/personal/obach2_uccs_edu/EZEESES52GdHmXujqNqBemoBQU2hy_jxaEA08erxXCxpUQ?e=YW0g5u 
